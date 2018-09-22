@@ -11,3 +11,5 @@ Translation:
 
 Väidlugo paragraph:
 Greetings! I am learning Väidlugo. I am creating my one Väidlugo paragraph. I do not speak Väidlugo fluently, but I am learning the language. I hope that the creator of Väidlugo will like this paragraph, and that with this paragraph I will have the Fluent Speaker role.
+
+![image](https://cdn.discordapp.com/attachments/447011191638720512/493126746309394433/Javaidlugido_Family_Tree.png)
