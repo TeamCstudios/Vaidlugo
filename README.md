@@ -7,6 +7,14 @@ Saluto la retejo da la konstrüa lugo "Väidlugo"
 
 Welcome to the website of the constructed language "Väidlugo"
 
+## Common Phrases
+| English                      | Väidlugo                        |
+|------------------------------|---------------------------------|
+| Hello!                       | Saluto! (lit. "Greeting!")      |
+| Goodbye!                     | Malsaluto! (lit. "Un-Greeting") |
+| Thanks!, That's Nice!        | Marubo! (lit. "Strawberry!")    |
+| You're Welcome!, No Problem! | Ahabo! (lit. "Blueberry!")      |
+
 ## Sample Text
 Väidluga Largvortkolekto:
 Saluto! Mu kelesi la väidluga lugo. Mu kekreidi mua una largvortkolekto väidluga. Mu keparli na flüe Väidlugo, sedu mu kelesi la lugo. Mu keesperi ka la kreidanto da Väidlugo dixati eta largvortkolekto, j ka kuva eta largvortkolekto mu dihaväi Parlanto Flüa.
