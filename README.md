@@ -1,8 +1,9 @@
+# Väidlugo
+
 ### [Discord](https://discord.gg/8jy4kh4)
 
 ### [Reference Material](https://docs.google.com/document/d/16QSKQDR0Kb9lZvAhim4alTqr88zRmitYoTUFWpvoVug/edit?usp=sharing)
 
-# Väidlugo
 Saluto la retejo da la konstrüa lugo "Väidlugo"
 
 Welcome to the website of the constructed language "Väidlugo"
