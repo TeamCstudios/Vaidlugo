@@ -48,3 +48,62 @@ Version 2.0 was started on August 7 and released August 9th. It removes the apos
 Version 2.1 was released on September 15th. It simplified consonant clusters and added new vocabulary.
 
 ![image](https://cdn.discordapp.com/attachments/447011191638720512/493126746309394433/Javaidlugido_Family_Tree.png)
+
+
+### Translation of "I kissed a girl"
+
+**Mu Pabesi Junuvähomo**
+
+Eto pasei na tempso kele ka mu papodraseri<br/>
+Na mua kavero<br/>
+Mu paasedri moltubetrukoro, xejdäanta pejo<br/>
+Pamalujuhaväi mua malubego<br/>
+Tu na kesei kelo, mu kemoltaseri<br/>
+Mu kekaveri une lesi da vu<br/>
+Mu kesei lesukavera pa vu<br/>
+Vu paxejdäi mua simulakro
+
+Mu pabesi junuvähomo j mu paxati tu<br/>
+La jestuklelemo da vätua klejahaba Txapstiko<br/>
+Mu pabesi junuvähomo une pa lesi da tu<br/>
+Mu keesperi ka tu na kesei sera pa mua vökaranto<br/>
+Tu pakori moltumalubetra<br/>
+Tu pakori moltubetra<br/>
+Tu na kekaveru parli ka mu kesei kubüanto eta nokt<br/>
+Mu pabedi junuvähomo j mu paxati tu<br/>
+Mu paxati tu
+
+Na, mu na kearafäi ankau vua homuvorto<br/>
+Tu na kesei sera<br/>
+Tu kesei mua lesa igrato<br/>
+Tu kesei une homusimulakro<br/>
+Tu na kesei kelo, betra jajunuvähomo keaseri<br/>
+Na kele vätuju keaseri betre<br/>
+Mua simulakro keasedri moltukäoso<br/>
+Malsimpa asei kelo jamalsamo parli
+
+Mu pabesi junuvähomo j mu paxati tu<br/>
+La jestuklelemo da vätua klejahaba Txapstiko<br/>
+Mu pabesi junuvähomo une pa lesi da tu<br/>
+Mu keesperi ka tu na kesei sera pa mua vökaranto<br/>
+Tu pakori moltumalubetra<br/>
+Tu pakori moltubetra<br/>
+Tu na kekaveri parli ka mu kesei kubüanto eta nokt<br/>
+Mu pabedi junuvähomo j mu paxati tu<br/>
+Mu paxati tu
+
+Muju jajunuvähomo muju kesei moltunaximäa<br/>
+Malgüa kixo, kleja jamunho moltu besupodra<br/>
+Malsimpa xejdäi moltu kixukorupodra<br/>
+Moltubetra pa malubegi tu<br/>
+Tu na kesei sera, tu kesei betra
+
+Mu pabesi junuvähomo j mu paxati tu<br/>
+La jestuklelemo da vätua klejahaba Txapstiko<br/>
+Mu pabesi junuvähomo une pa lesi da tu<br/>
+Mu keesperi ka tu na kesei sera pa mua vökaranto<br/>
+Tu pakori moltumalubetra<br/>
+Tu pakori moltubetra<br/>
+Tu na kekaveri parli ka mu kesei kubüanto eta nokt<br/>
+Mu pabedi junuvähomo j mu paxati tu<br/>
+Mu paxati tu
