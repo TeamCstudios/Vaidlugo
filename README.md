@@ -19,7 +19,7 @@ You're Welcome!, No Problem! | Ahabo! (lit. "Blueberry!")
 
 ## Sample Text
 Väidluga Largvortkolekto:
-Saluto! Mu kelesi la väidluga lugo. Mu kekreidi mua una largvortkolekto väidluga. Mu keparli na flüe Väidlugo, sedu mu kelesi la lugo. Mu keesperi ka la kreidanto da Väidlugo dixati eta largvortkolekto, j ka kuva eta largvortkolekto mu dihaväi Parlanto Flüa.
+Saluto! Mu kelesi la väidluga lugo. Mu kekreidi mua una larguvortukolekto väidluga. Mu keparli na flüe Väidlugo, sedu mu kelesi la lugo. Mu keesperi ka la kreidanto da Väidlugo dixati eta larguvortukolekto, j ka kuva eta larguvortukolekto mu dihaväi Parlanto Flüa.
 
 Translation:
 
